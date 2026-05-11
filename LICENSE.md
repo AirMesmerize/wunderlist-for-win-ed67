@@ -1,4 +1,4 @@
-
+MindManager for Windows ultimate Addon: attachments & presentation-mode is the best MindManager for Windows addon, featuring attachments and presentation-mode. Powerful,
 
 
 
